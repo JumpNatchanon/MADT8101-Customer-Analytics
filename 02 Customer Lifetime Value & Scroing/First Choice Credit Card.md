@@ -1,1 +1,8 @@
-
+![Alt Text](https://github.com/JumpNatchanon/MADT8101-Customer-Analytics/blob/3c149b2b316310b5069011889b06d81c45337fbe/02%20Customer%20Lifetime%20Value%20%26%20Scroing/Pictures/First%20choice_Page_1.jpg)
+![Alt Text](https://github.com/JumpNatchanon/MADT8101-Customer-Analytics/blob/3c149b2b316310b5069011889b06d81c45337fbe/02%20Customer%20Lifetime%20Value%20%26%20Scroing/Pictures/First%20choice_Page_2.jpg)
+![Alt Text](https://github.com/JumpNatchanon/MADT8101-Customer-Analytics/blob/3c149b2b316310b5069011889b06d81c45337fbe/02%20Customer%20Lifetime%20Value%20%26%20Scroing/Pictures/First%20choice_Page_3.jpg)
+![Alt Text](https://github.com/JumpNatchanon/MADT8101-Customer-Analytics/blob/3c149b2b316310b5069011889b06d81c45337fbe/02%20Customer%20Lifetime%20Value%20%26%20Scroing/Pictures/First%20choice_Page_4.jpg)
+![Alt Text](https://github.com/JumpNatchanon/MADT8101-Customer-Analytics/blob/3c149b2b316310b5069011889b06d81c45337fbe/02%20Customer%20Lifetime%20Value%20%26%20Scroing/Pictures/First%20choice_Page_5.jpg)
+![Alt Text](https://github.com/JumpNatchanon/MADT8101-Customer-Analytics/blob/3c149b2b316310b5069011889b06d81c45337fbe/02%20Customer%20Lifetime%20Value%20%26%20Scroing/Pictures/First%20choice_Page_6.jpg)
+![Alt Text](https://github.com/JumpNatchanon/MADT8101-Customer-Analytics/blob/3c149b2b316310b5069011889b06d81c45337fbe/02%20Customer%20Lifetime%20Value%20%26%20Scroing/Pictures/First%20choice_Page_7.jpg)
+![Alt Text](https://github.com/JumpNatchanon/MADT8101-Customer-Analytics/blob/3c149b2b316310b5069011889b06d81c45337fbe/02%20Customer%20Lifetime%20Value%20%26%20Scroing/Pictures/First%20choice_Page_8.jpg)
